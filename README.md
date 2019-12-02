@@ -1,0 +1,2 @@
+# SubhraKanti
+Daily Trade Report
